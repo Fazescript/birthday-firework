@@ -29,15 +29,15 @@ Run the project Simply open the index.html file in any modern web browser.
 # 🚀 Upgrade to the Pro Version!
 Want to make your loved one's special day truly unforgettable? The FREE version is just the beginning. I offer Basic & Premium Packages with high-end features:
 
-# 🔥 Advanced Visuals: Upgrade from simple particles to stunning laser-trail fireworks.
+🔥 Advanced Visuals: Upgrade from simple particles to stunning laser-trail fireworks.
 
-# 🎵 Background Music: Add your favorite song to play automatically.
+🎵 Background Music: Add your favorite song to play automatically.
 
-# 📸 Personal Memories: Integrate a photo gallery or custom background images.
+📸 Personal Memories: Integrate a photo gallery or custom background images.
 
-# 💌 Custom Storytelling: Fully personalized messages and interactive storytelling elements.
+💌 Custom Storytelling: Fully personalized messages and interactive storytelling elements.
 
-# ✨ No Watermark: A clean, professional look dedicated entirely to your recipient.
+✨ No Watermark: A clean, professional look dedicated entirely to your recipient.
 
 # 📩 Ready to Order?
 Contact me via Instagram DM for pricing and custom requests: 👉 Instagram @fazescript
