@@ -40,7 +40,7 @@ Want to make your loved one's special day truly unforgettable? The FREE version 
 ✨ No Watermark: A clean, professional look dedicated entirely to your recipient.
 
 # 📩 Ready to Order?
-Contact me via Instagram DM for pricing and custom requests: 👉 Instagram @fazescript
+Contact me via Instagram DM for pricing and custom requests: 👉 Instagram [@fazescript](https://www.instagram.com/fazescript?igsh=dXB5MGozbHppamhw)
 
 # 🔗 Social Media
 Follow me for more creative web projects and interactive UI content:
